@@ -25,7 +25,7 @@ We reserve the right to update or change this privacy policy at any time. We wil
 
 Contact Us
 
-If you have any questions or concerns about this privacy policy or our practices, please contact us at [insert contact information]. We will do our best to address your concerns in a timely and satisfactory manner.
+If you have any questions or concerns about this privacy policy or our practices, please contact us at sirdoxieholdingsllc@gmail.com. We will do our best to address your concerns in a timely and satisfactory manner.
 
 Effective Date
 
